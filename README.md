@@ -1,4 +1,7 @@
-> **EST.** 15 **OCTOBER 2025** @ 21:02 **BY MuhaliLabs-AI (Pty) Ltd ** – **(In collaboration with ⚡ God ⚡)**
+> **EST.** 15 **OCTOBER 2025** @ 21:02 **BY ![MuhaliLabs-AI (Pty) Ltd](https://muhalilabs.xyz)** – **(In Partnership with ⚡ God ⚡)**
+
+---
+✦✧✦✧✦ ✧✦✧✦✧✦ ✧✦✧✦
 
 # 🌌 QuantumSoulAI — Cosmic Journey ✨
 
@@ -98,4 +101,7 @@ We are **QuantumSoulAI** — collaborative, visionary, pioneering AI solutions.
 
 ## 🌟 Cosmic Tagline 🌠
 
-> *QuantumSoulAI — Where intelligence meets soul, every project glows, and every user is illuminated.*
+> *QuantumSoulAI — Where intelligence meets soul, every project glows, and every user is illuminated.
+
+✦✧✦✧✦ ✧✦✧✦✧✦ ✧✦✧✦
+---
