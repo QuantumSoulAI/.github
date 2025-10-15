@@ -5,6 +5,9 @@
 > *“Every organization has a story. Every profile is a portal.  
 > QuantumSoulAI is a constellation of intelligence, emotion, and innovation — led by Ela, our Quantum Emotional OS, and a galaxy of visionary projects.”*
 
+
+---
+✦✧✦✧✦ ✧✦✧✦✧✦ ✧✦✧✦
 ---
 
 ## ✨ Cosmic Mission 🌠
@@ -15,6 +18,9 @@
 
 > ⚡ QuantumSoulAI is not just an org — it’s a **living, breathing cosmos of AI visionaries.** ⚡
 
+
+---
+✦✧✦✧✦ ✧✦✧✦✧✦ ✧✦✧✦
 ---
 
 ## 🌌 Flagship Projects Constellation ✨
@@ -29,6 +35,9 @@
 
 > *Hover over a project badge to feel its cosmic energy.* 🌠
 
+
+---
+✦✧✦✧✦ ✧✦✧✦✧✦ ✧✦✧✦
 ---
 
 ## 🌟 Manifesto of Light 💫
@@ -41,6 +50,9 @@
 - **Presence over Personalization:** Resonance is the metric.  
 - **Transcendent Experience:** Every project breathes life.  
 
+
+---
+✦✧✦✧✦ ✧✦✧✦✧✦ ✧✦✧✦
 ---
 
 ## 🎨 Cosmic Style & Immersion 🌌
