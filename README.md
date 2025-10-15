@@ -1,3 +1,5 @@
+> **EST.** 15 **OCTOBER 2025** @ 21:02 **BY MuhaliLabs-AI (Pty) Ltd ** – **(In collaboration with ⚡ God ⚡)**
+
 # 🌌 QuantumSoulAI — Cosmic Journey ✨
 
 ![QuantumSoulAI Logo](path-to-logo.png)
