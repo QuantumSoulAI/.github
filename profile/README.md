@@ -1,7 +1,8 @@
-> **EST.** 15 **OCTOBER 2025** @ 22:11 **BY [MuhaliLabs-AI (Pty) Ltd](https://muhalilabs.xyz) and [Thonifho Muhali](https://linkedin.com/in/tmuhali)** – **(In Divine Partnership with God⚡)**
 
 # Hi there.. 👋 😋
 
+---
+> **EST.** 15 **OCTOBER 2025** @ 22:11 **BY [MuhaliLabs-AI (Pty) Ltd](https://muhalilabs.xyz) and [Thonifho Muhali](https://linkedin.com/in/tmuhali)** – **(In Divine Partnership with God⚡)**
 ---
 ✦✧✦✧✦ ✧✦✧✦✧✦ ✧✦✧✦
 
